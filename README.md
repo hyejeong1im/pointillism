@@ -7,7 +7,7 @@
 
 <br/>
 
-[https://limteractive.github.io/pointillism/](https://limteractive.github.io/pointillism/)
+[https://hyejeong1im.github.io/pointillism/](https://limteractive.github.io/pointillism/)
 
 <br/><br/>
 
