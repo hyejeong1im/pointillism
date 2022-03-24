@@ -7,7 +7,7 @@
 
 <br/>
 
-[https://limhyejeong.github.io/pointillism/](https://limhyejeong.github.io/pointillism/)
+[https://limhyejeong.github.io/pointillism/]{:target="_blank"}(https://limhyejeong.github.io/pointillism/)
 
 <br/><br/>
 
